@@ -1,0 +1,1 @@
+# Jarak-Fokus-Lensa-Gerak-Parabola
